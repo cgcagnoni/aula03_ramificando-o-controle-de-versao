@@ -1,4 +1,4 @@
 # Sumário
 
-Cidade Negra - A Estrada
-Nando Reis - All Star
+Cidade Negra - A Estrada  
+Nando Reis - All Star  
